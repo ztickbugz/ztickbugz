@@ -10,7 +10,7 @@ $${\color{#658EA8} W2I　
 \color{#B2C7D4}my 　
 \color{#CCD9E2}attention}$$
 
-
+![](https://komarev.com/ghpvc/?username=ztickbugz&label=frostylings)
 
 $${\color{#CCD9E2}please 
 　
