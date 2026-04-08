@@ -1,6 +1,7 @@
 $${\color{#90AFC2}✧}$$
 
-$${\color{#E3ECEE} ALWAYS 　\color{#C6D9DC} int \color{#AAC7CB}　\color {#8EB4B9} with 　\color{#71A1A8}care!!}$$
+$${\color{#CCD9E2} ALWAYS 　\color{B2C7D4} int \color{#98B4C5}　\color {#7FA1B7} with 　\color{#658EA8}care!!}$$
+
 
 
 $${\color{#658EA8} W2I　
@@ -10,9 +11,17 @@ $${\color{#658EA8} W2I　
 \color{#CCD9E2}attention}$$
 
 
- <P align="center">
- <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31d62uah2puexptlitjebsj7ycn4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=e6e6e6&interchange=false&profanity=false&bar_color=5ba1b9&bar_color_cover=false">
-  </a>
-</p>
+
+$${\color{#CCD9E2}please 
+　
+\color {#B2C7D4}do
+　
+ \color{#98B4C5}not 
+　
+\color{##7FA1B7}copy
+　
+ \color{#7FA1B7}my 
+　
+\color{#658EA8}skins!}$$
+
+$${\color{#90AFC2}✧}$$
