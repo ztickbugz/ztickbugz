@@ -1,13 +1,14 @@
 $${\color{#90AFC2}✧}$$
 
+$${\color{#E3ECEE} ALWAYS 　\color{#C6D9DC} int \color{#AAC7CB}　\color {#8EB4B9} with 　\color{#71A1A8}care!!}$$
+
+
 $${\color{#658EA8} W2I　
 \color{#7FA1B7}to 　
 \color{#98B4C5}get 　
 \color{#B2C7D4}my 　
 \color{#CCD9E2}attention}$$
 
-
-$${\color{#E3ECEE} ALWAYS 　\color{#C6D9DC} int \color{#AAC7CB}　\color {#8EB4B9} with 　\color{#71A1A8}care!!}$$
 
  <P align="center">
  <p align="center">
