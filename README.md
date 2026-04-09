@@ -53,6 +53,6 @@ $${\color{#CCD9E2}socials
 　
 \color{#98B4C5}in 
 　
-\color{#7FA1B7}strawpage <3}$$
+\color{#7FA1B7}strawpage ˎˊ˗}$$
 
 $${\color{#90AFC2}✧}$$
