@@ -47,4 +47,12 @@ $${\color{#CCD9E2}please
 　
 \color{#658EA8}skins!}$$
 
+$${\color{#CCD9E2}socials 
+　
+\color{#B2C7D4}are 
+　
+\color{#98B4C5}in 
+　
+\color{#7FA1B7}strawpage <3}$$
+
 $${\color{#90AFC2}✧}$$
