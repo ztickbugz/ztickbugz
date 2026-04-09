@@ -33,8 +33,8 @@ $${\color{#658EA8} W2I　
 　
 　
 　
-　[ata](https://frostyy.atabook.org/)   ⏖
-　   [straw](https://frosty5257.straw.page)
+　[ata](https://frostyy.atabook.org/) 　 ⏖
+　 [straw](https://frosty5257.straw.page)
  
 $${\color{#CCD9E2}please 
 　
